@@ -1,9 +1,9 @@
 <h2 align="center">
-    ──  ˹ᴅᴇᴠɪʟ ✗ 𝙈𝙐𝙎𝙄𝘾˼── 
+    ──  ˹𝙆𝙄𝙉𝙂 ✗ 𝙈𝙐𝙎𝙄𝘾˼── 
 </h2>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/cf7902342e66ae071c7a7.jpg">
+  <img src="https://telegra.ph//file/67f28fc4b1b8765ecbb1b.jpg">
 </p>
 
 <p align="center">
